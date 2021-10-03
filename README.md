@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nicolas-M-Wong
+- 👋 Hi, I’m Nicolas Wong
 - 👀 I’m interested in plane 🛫🛬 (@runway32R on instagram to see nice picture 😍)
 - 🌱 I’m currently learning aerospace engineering in Paris
 
